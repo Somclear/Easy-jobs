@@ -1,1 +1,1 @@
-# Easy Wat
+# Easy Way
